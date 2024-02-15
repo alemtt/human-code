@@ -6,7 +6,7 @@ Perché ci si mette sempre un’ora a scegliere cosa guardare la sera? Certo è 
 
 ****************
 Context:
-Netflix sulla TV in camera da letto
+Netflix sulla TV smart in camera da letto
 Sono Stanislav
 Il gruppo è Dispari
 Noi siamo in salotto 
